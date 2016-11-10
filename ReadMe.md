@@ -1,0 +1,4 @@
+## Piyush Manush Tribute Page
+
+Piyush Manush  is an environmental activist from Tamil Nadu, India. Along with few people in 2010, He formed the Salem Citizen’s Forum, a collective of urban citizens that engaged in people welfare activities. The Forum adopted the Mookaneri Lake, a 58-acre located at the foot of the Shevaroy Hills, was conserved from massive pollution. He has also made contribution to revive water bodies like Ammapettai Lake, Kundukkal Lake, Ismailkhan Lake, Arisipalayam Pond and Pallappatti well. He opposed commercial mining in Kanjamalai hills and He stands against encroachments and land mafia. For a youngster who started off by planting trees in the hills surrounding his hometown, Piyush has come a long way. The vociferous activist has courted arrest, faced threats and taken on corporate giants in his bid to defend the environment.
+
